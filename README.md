@@ -6,3 +6,5 @@ My very own personal website. Basically this is just a résumé.
 
 It's about my GIT homework
 🤣😂❤️
+
+He was waiting for the rain to stop.
